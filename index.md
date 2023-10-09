@@ -9,7 +9,8 @@ je suis en mesure d'épauler vos équipe à partir de septembre 2023.
 - **2021** Bac technologique spécialité ressources humaines et communication.
 
 ## EXPERIENCES PROFESSIONNELLES
-- **2023** Alternance d'un 1 an chez C-Fluide en tant qu'assistante chargée de communication.
+- **2023**
+  Alternance d'un 1 an chez C-Fluide en tant qu'assistante chargée de communication.
          - Assurer une veille commerciale et concurentielle
          - Realisation d'un travail de redaction et de création de contenus
          - Développer la stratégie newsletter sur les prospects et les clients
