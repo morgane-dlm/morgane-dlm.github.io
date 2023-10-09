@@ -9,8 +9,7 @@ je suis en mesure d'épauler vos équipe à partir de septembre 2023.
 - **2021** Bac technologique spécialité ressources humaines et communication.
 
 ## EXPERIENCES PROFESSIONNELLES
-- **2023**
-  Alternance d'un 1 an chez C-Fluide en tant qu'assistante chargée de communication.
+- **2023** Alternance d'un 1 an chez C-Fluide en tant qu'assistante chargée de communication.
          - Assurer une veille commerciale et concurentielle
          - Realisation d'un travail de redaction et de création de contenus
          - Développer la stratégie newsletter sur les prospects et les clients
@@ -27,7 +26,7 @@ je suis en mesure d'épauler vos équipe à partir de septembre 2023.
          - Réalisation d'un calendrier éditorial et prévionnel
          - Gestion et Animation de la communauté sur Instagram
 - **2022** Stage de 1 mois chez Ame Bordeaux en tant que Community manager.
-         - Utilisation du logiciel Mailchimp pour crées des Newsletter
+         - Utilisation du logiciel Mailchimp pour créer des Newsletter
          - Utilisation du logiciel Wordpress
          - Création de bases de donnéees buisiness to buisiness
          - Animation d'une communauté sur les réseaux sociaux (facebook,Instagram)
