@@ -9,7 +9,7 @@ je suis en mesure d'épauler vos équipe à partir de septembre 2023.
 - **2021** Bac technologique spécialité ressources humaines et communication.
 
 ## EXPERIENCES PROFESSIONNELLES
-- **2023** Stage de 2 mois chez l'agence de communication MoonCompany en tant que Social média manager.
+- **2023** Stage de 2 mois dans l'agence de communication MoonCompany en tant que Social média manager.
          - Création de contenus digiaux
          - Montage vidéo / Retouche photo
          - Rédaction d'articles de blog
@@ -39,5 +39,5 @@ je suis en mesure d'épauler vos équipe à partir de septembre 2023.
 
 ## CONTACT
 - E-mail : morgane42160@outlook.fr
-- Téléphone : 06 52 024 79 30
+- Téléphone : 06 52 24 79 30
 - Linkedin : Morgane Delolme
